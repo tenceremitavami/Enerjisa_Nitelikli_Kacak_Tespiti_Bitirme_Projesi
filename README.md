@@ -1,0 +1,1 @@
+# Enerjisa_Nitelikli_Kacak_Tespiti_Bitirme_Projesi
